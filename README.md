@@ -42,8 +42,6 @@
 
 <br clear="both">
 
-<img src="https://raw.githubusercontent.com/Catta1997/Catta1997/output/snake.svg" alt="Snake animation" />
-
 ###
 
 <div align="center">

@@ -12,6 +12,6 @@
 
 
 ---
-[![](https://visitcount.itsvg.in/api?id=Catta1997&icon=0&color=0)](https://visitcount.itsvg.in)
+![Catta1997](https://count.getloli.com/get/@Catta1997?theme=rule34)
 
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
